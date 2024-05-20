@@ -8,6 +8,7 @@
 - 💬 Ask me about **Python, ML, NLP**
 
 - 📫 How to reach me **purushottam.pdtr@gmail.com**
+- 📄 Know about my experiences [https://burnt-cough-9f8.notion.site/PURUSHOTTAM-GONTUMUKALA-a3eaf68301bf46798a192511a2b129e1?pvs=4](https://burnt-cough-9f8.notion.site/PURUSHOTTAM-GONTUMUKALA-a3eaf68301bf46798a192511a2b129e1?pvs=4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
